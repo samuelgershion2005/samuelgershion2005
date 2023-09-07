@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @samuelgershion2005
 - 👀 I’m interested in vr and space and science and AI
-- 🌱 I’m currently learning @ cit ,dep:AI & DS
+- 🌱 I’m currently studing @ cit clg,dep:AI & DS
 - 
 - 📫 How to reach me ...
 - G mail : samuelgershion2005@gmail.com
